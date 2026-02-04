@@ -1,4 +1,4 @@
-Privacy Policy for [QRSpec-Qr Generator]
+Privacy Policy for QRSpec-Qr Generator
 
 Last Updated: 05.02.2026
 
